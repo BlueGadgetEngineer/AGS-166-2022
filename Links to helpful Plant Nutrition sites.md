@@ -6,7 +6,7 @@
 ### A helpful deficiencies ID clip by e-Gro
 	https://www.youtube.com/watch?v=Cq9tTqMxh2o   
 
-### ornell University's Basic Concepts of Plant Nutrition
+### Cornell University's Basic Concepts of Plant Nutrition
 	https://nrcca.cals.cornell.edu/soilFertilityCA/CA1/CA1_print.html
 
 ## University of Idaho Extension
